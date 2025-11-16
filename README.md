@@ -1,3 +1,1 @@
-<img width="426" height="240" alt="videoframe_5063" src="https://github.com/user-attachments/assets/30f20ed3-56c9-4586-a5a8-0b16bb0c72bb" />
-
-
+![unstable-universe-parrotx2 (1)](https://github.com/user-attachments/assets/47d8008f-b89d-45d7-b45b-1308b4f85043)
