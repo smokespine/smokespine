@@ -1,7 +1,5 @@
-
-
-
-https://github.com/user-attachments/assets/812d5738-ef37-4964-be6a-6bece7c8f928
+𖠋
+![parrotx2-mcyt (1)](https://github.com/user-attachments/assets/9546847f-d981-4536-8f53-1663a4f02e0b)
 
 
                            
