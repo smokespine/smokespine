@@ -6,7 +6,7 @@ dont talk to me unless its about minecraft/j ~IM EVIL~**
 
 <img width="160" height="160" alt="bliss-smp-quakitus (2)" src="https://github.com/user-attachments/assets/92ff61a4-db53-4011-ac54-19f4e2027c0b" /> <img width="182" height="150" alt="spokeishere-spoke" src="https://github.com/user-attachments/assets/12b365ca-d923-451d-81b2-ab4f626e0331" />
 
-_here is my **[tiktok](https://www.tiktok.com/@1heaveniyy?_r=1&_t=ZN-95aE40aDTmg)** with some bs_
+_here is my **[tiktok](https://www.tiktok.com/@1heaveniyy?_r=1&_t=ZN-95aE40aDTmg)** with some bs_ SUBSCRIBE 
 
 
 
