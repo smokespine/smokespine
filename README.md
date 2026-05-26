@@ -1,5 +1,5 @@
 **havoc duo warrior
-18 lvl
+19 lvl
 im into larpsteal and larpstable universe 
 dont talk to me unless its about minecraft/j ~IM EVIL~**
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o3icyidqcra2hkakxnnklh4wci&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=de0dc2&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31o3icyidqcra2hkakxnnklh4wci&redirect=true)
