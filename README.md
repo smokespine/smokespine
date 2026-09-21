@@ -4,7 +4,7 @@ hi
 <img width="498" height="373" alt="patchbreakers-spokeishere" src="https://github.com/user-attachments/assets/ddcafb3c-c407-431d-a62e-f131089ba70b" />
 
 
-_here is my **[tiktok](https://www.tiktok.com/@1heaveniyy?_r=1&_t=ZN-95aE40aDTmg)** with some bs_ follow me :3  
+_here is my **[tiktok](https://www.tiktok.com/@1heaveniyy?_r=1&_t=ZN-95aE40aDTmg)** with some bs_
 
 
 
